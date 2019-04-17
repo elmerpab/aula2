@@ -9,6 +9,4 @@ fdfsedfds
 nesta linha precisamos atualiza 4
 
 ## estou na  minha maquina
-não mais nam inha 
-## atualização sobre terceira parte
-isto é a terceira parte
+não, apenas foi uma brincadeira
